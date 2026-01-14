@@ -1,0 +1,80 @@
+# シーズ – Bouncy Girl
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:03.61] You like it, like it bouncy
+[00:05.55] I feel so bouncy, bouncy
+[00:10.70] You like it, like it, bouncy girl
+[00:27.20] 
+[00:13.68] 今さら安っぽい言葉
+[00:17.06] 無意味だって分かるでしょ
+[00:20.48] くだらない駆け引きも相手にしない
+[00:24.04] I'm sorry, I don't care whatever you say
+[00:44.04] 
+[00:27.78] 触れたくても触れられない
+[00:31.22] 'Cause I know I'm so bouncy
+[00:32.85] 想定しない軌道でしょ？
+[00:34.66] 瞬きせずその場所で
+[00:37.72] Just searching for my pattern
+[00:39.65] よく見てて how I move
+[00:47.65] 
+[00:41.75] It's not necessary
+[00:43.53] 誰でも似合う like accessories
+[00:55.03] 
+[00:47.48] 心まで bouncy 揺らす視界に (shake it!)
+[00:51.44] 愛に酔ってないで 少し calm down!
+[00:54.39] 要らない don't worry
+[00:56.12] ひとりで make it (oh-oh)
+[00:58.24] 無理しないでいいよ
+[01:00.38] Can you follow me now?
+[01:11.38] 
+[01:02.25] Huu 常識もルールも興味ないって
+[01:08.53] But I found you
+[01:11.33] 期待しちゃうね bouncy girl
+[01:14.58] (I feel so bouncy, bouncy)
+[01:27.58] 
+[01:19.35] You like it, like it bouncy
+[01:20.85] I feel so bouncy, bouncy
+[01:26.07] You like it, like it bouncy
+[01:27.62] I feel so bouncy bouncy bouncy
+[01:42.62] 
+[01:29.71] It's my field of view 変わりゆくのね
+[01:33.21] I just feel so new 見たことないわ (yeah)
+[01:36.64] Your love fake or true 見極めるから
+[01:40.06] Don't play by your rules
+[01:52.06] 
+[01:42.02] 捕まえて bouncy
+[01:43.92] ちゃんとその手に (hold it!)
+[01:46.33] 言えないよ そんな素直じゃない
+[01:49.21] 気まぐれな sweetie
+[01:50.77] 溢さず keep it (oh-oh)
+[01:53.12] どうすればいいの？
+[01:55.23] Somebody just tell me!
+[02:06.23] 
+[01:57.13] Huu 浮かれそうな心が制御できない
+[02:03.48] Thinking about you
+[02:06.35] 止まらない I'm so bouncy girl
+[02:09.39] (I feel so bouncy, bouncy)
+[02:22.39] 
+[02:24.24] いつしか something wrong
+[02:25.89] 私らしくない (bouncy girl)
+[02:27.97] そう誰かと一緒にしないで (bouncy girl)
+[02:31.48] What I really want ありのままでいい
+[02:34.58] What I want is
+[02:35.60] What I want is
+[02:42.60] 
+[02:36.94] 心まで bouncy 揺れる視界に (shake it!)
+[02:41.07] 君に酔ってないわ 私 cool down
+[02:44.16] 言わないで sorry
+[02:45.76] ふたりで make it (oh-oh)
+[02:47.81] どこでも we can go!
+[02:49.94] I'm filling up, baby
+[02:59.94] 
+[02:51.72] ふー 常識もルールも興味ないって
+[02:58.17] But I found you
+[03:01.41] 期待しちゃうね bouncy girl
+[03:04.25] (I feel so bouncy, bouncy)
+[03:05.38] I know I'm bouncy girl
+[03:07.63] (You like it, like it bouncy)
+```
